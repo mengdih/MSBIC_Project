@@ -8,3 +8,5 @@ The team memebers are as follows:-
 4. Weidong Yuan
 
 The project selection ends on 4th Oct.
+
+I have joined. : Mengdi
